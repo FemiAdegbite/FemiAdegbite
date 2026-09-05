@@ -1,4 +1,4 @@
-# Hi, I'm Adegbite Femi Gbenga 👋
+# Hi, I'm Femi Adegbite 👋
 
 ### Data Analyst | Data & Admin Professional | CRM · SQL · Power BI · Excel · Google Sheets
 
